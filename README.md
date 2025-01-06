@@ -1,4 +1,4 @@
-👋 Hi, I’m @arfianda
+A freshman undergraduate student Teknik Informatika 😹
 
 
 <!---
